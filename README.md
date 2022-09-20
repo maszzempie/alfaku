@@ -1,0 +1,2 @@
+# alfaku
+alfaneMaszzempie
